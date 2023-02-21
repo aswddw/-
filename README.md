@@ -12,7 +12,7 @@
 ### [bber999.me](https://bber999.me)<br> 
 
 ### 易倍体育手机H5浏览地址：
-### [appdownload.hxjmc.com](appdownload.hxjmc.com)<br>  
+### [appdownload.hxjmc.com=https://m5app-download.s3.ap-east-1.amazonaws.com/ldapp/manifest.plist](appdownload.hxjmc.com=https://m5app-download.s3.ap-east-1.amazonaws.com/ldapp/manifest.plist)<br>  
 ### [https://lddestopdown.kd0518.com/lddown/](https://lddestopdown.kd0518.com/lddown/)<br> 
 
 
