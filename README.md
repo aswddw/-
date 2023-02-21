@@ -2,7 +2,7 @@
 
 ### 点击以下链接进入下载页： 
 
-### [ld.viphttps://ldvip64.com/))<br> 
+### [ld.vip](https://ldvip64.com)<br> 
  
 ### [whou66.com](https://whou66.com)<br>   
  
