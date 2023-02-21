@@ -12,7 +12,7 @@
 ### [bber999.me](https://bber999.me)<br> 
 
 ### 易倍体育手机H5浏览地址：
-### [https://aswddw.github.io/-/](https://aswddw.github.io/-/)<br>  
+### [https://aswddw.github.io/-/name](https://aswddw.github.io/-/name)<br>  
 ### [https://lddestopdown.kd0518.com/lddown/](https://lddestopdown.kd0518.com/lddown/)<br> 
 
 
