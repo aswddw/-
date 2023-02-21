@@ -1,8 +1,8 @@
-# 易倍体育最新下载地址（2022年11月12日更新）
+# 乐动体育最新下载地址（2022年11月12日更新）
 
 ### 点击以下链接进入下载页： 
 
-### [e6mc66.com](https://e6mc66.com)<br> 
+### [ld.viphttps://ldvip64.com/))<br> 
  
 ### [whou66.com](https://whou66.com)<br>   
  
