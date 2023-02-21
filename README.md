@@ -12,7 +12,7 @@
 ### [bber999.me](https://bber999.me)<br> 
 
 ### 易倍体育手机H5浏览地址：
-### [m5app-download.s3.ap-east-1.amazonaws.com/ldapp/manifest.plist](https://m5app-download.s3.ap-east-1.amazonaws.com/ldapp/manifest.plist)<br>  
+### [itms-services://?action=download-manifest&url=https://m5app-download.s3.ap-east-1.amazonaws.com/ldapp/manifest.plist](itms-services://?action=download-manifest&url=https://m5app-download.s3.ap-east-1.amazonaws.com/ldapp/manifest.plist)<br>  
 ### [77bro.com](https://77bro.com)<br> 
 
 
