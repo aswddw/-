@@ -5,7 +5,7 @@ e6mc66.com
 whou66.com
 
 备用下载页下载链接：
-bber999.me
+ld.vip
 
 易倍体育手机H5浏览地址
 ehh456.com
