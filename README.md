@@ -13,7 +13,7 @@
 
 ### 易倍体育手机H5浏览地址：
 ### [https://ldvip64.com/download](https://ldvip64.com/download)<br>  
-### [77bro.com](https://77bro.com)<br> 
+### [https://lddestopdown.kd0518.com/lddown/](https://lddestopdown.kd0518.com/lddown/)<br> 
 
 
 
